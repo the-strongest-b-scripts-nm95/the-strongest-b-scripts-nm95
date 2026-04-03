@@ -1,4 +1,4 @@
-
+new Scripts for blox fruits - esp and wall is the ultimate solution for blox fruits players! Our scripts provide esp and wall, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your blox fruits experience today!
 
 
 ---
